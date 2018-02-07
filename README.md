@@ -1,1 +1,0 @@
-# George-Semerjyan.github.io
